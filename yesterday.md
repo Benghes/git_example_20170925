@@ -5,3 +5,5 @@ It was really weird!
 I should have asked him why.
 
 And tomorrow we'll have class
+
+Yesterday it was Sunday.
