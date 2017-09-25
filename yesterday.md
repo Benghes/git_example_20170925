@@ -6,4 +6,4 @@ I should have asked him why.
 
 And tomorrow we'll have class
 
-It was Saturday yesterday, really.
+It was Saturday yesterday.
